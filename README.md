@@ -1,6 +1,6 @@
 # Public-Policy
 Public Policies Design to Build God's Kingdom
-# Transforming Wellness for All Our Relations
+# 🕊️ Transforming Wellness for All Our Relations
 
 Our policy initiatives are designed to address pressing challenges and pave the way for a healthier, more heavenly world. By blending Torah-based ethics with modern governance and innovation, we seek to create a society that reflects God’s divine order while promoting justice, sustainability, and peace. Here's a glimpse into our key focus areas:
 
